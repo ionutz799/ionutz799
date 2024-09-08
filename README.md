@@ -1,0 +1,2 @@
+-Geography and history nerd
+-Ocasionally codes
